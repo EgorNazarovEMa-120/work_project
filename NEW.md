@@ -1,1 +1,0 @@
-Gomu Gomu no Mi
